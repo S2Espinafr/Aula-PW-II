@@ -1,2 +1,0 @@
-lucas emanuel 
-phelipe gabriel
