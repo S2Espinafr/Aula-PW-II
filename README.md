@@ -1,2 +1,2 @@
-lucas emanuel 
-phelipe gabriel
+Lucas Emanuel 
+Phelipe Gabriel
